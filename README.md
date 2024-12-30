@@ -1,6 +1,4 @@
 ## Hey there!
-### I'm **Joseph**, or **emptiestdino.** 👋
+### I'm **emptiestdino.** 👋
 
 Discord: @emptiestdino
-
-Twitter: @emptiestdino_me
